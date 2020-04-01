@@ -1,3 +1,4 @@
 # crispy-octo-doodle
 
-I'm glad to join the grit!
+Oh wow, you did read me.
+You're a curious one ey?
